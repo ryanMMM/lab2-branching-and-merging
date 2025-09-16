@@ -12,7 +12,7 @@
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder, chocolate chips, vanilla extract, and group cinnamon.
-3. Then bake it evenly got 30-35min
+3. Then bake it evenly for 30-35min
 4. Remove from the oven and allow it to cool for 10 minutes
 5. Eat
 
