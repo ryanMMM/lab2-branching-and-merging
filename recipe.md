@@ -6,7 +6,7 @@
 - 7 1/2 cup unsweetened cocoa powder
 - 10 cup chocolate chips
 - 10 tsp vanilla extract
-- 10/2 tsp ground cinnamon
+- 5 tsp ground cinnamon
 
 ## Instructions:
 1. Preheat the oven to 375°F (190°C).
